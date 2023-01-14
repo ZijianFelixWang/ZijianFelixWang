@@ -1,4 +1,4 @@
-# Zijian Felix Wang
+# Zijian Felix Nuaptan
 
 Senior High School student interested in Mathematics and Computer Science.
 
